@@ -1,5 +1,7 @@
-# Kondo-HeartToHeart-4-
+# Kondo-HeartToHeart-4-中文翻譯
 完美解決HTH4只有日文和英文的問題
+
+如果可以請追隨 https://www.facebook.com/?locale=zh_TW 
 
 參考以下說明進行安裝
 # 歡迎使用BeeRobotics KONDO 中文翻譯包
