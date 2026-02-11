@@ -1,7 +1,7 @@
 # Kondo-HeartToHeart-4-中文翻譯
 完美解決HTH4只有日文和英文的問題
 
-如果可以請追蹤 https://www.facebook.com/black.bee.584476/
+如果可以請追蹤 https://www.facebook.com/profile.php?id=61587298721487
 
 如果有問題請填寫此表單 https://forms.gle/eeN3ou9Kw6MhFZEB8
 
