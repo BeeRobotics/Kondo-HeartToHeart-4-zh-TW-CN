@@ -2,7 +2,7 @@
 
 完美解決 HTH4 只有日文和英文的問題
 
-更多資訊請追蹤：https://www.facebook.com/black.bee.584476/
+更多資訊請追蹤：https://www.facebook.com/people/BlackBee-Robotics/61587298721487/
 
 如果有問題請填寫此 Google 表單：https://forms.gle/eeN3ou9Kw6MhFZEB8
 
